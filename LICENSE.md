@@ -1,4 +1,4 @@
-
+Enhance your VyprVPN experience with professional VyprVPN Addon | OpenVPN-support + cross-platform-support, the #1 addon. Includes OpenVPN-support and cross-platform-support for a
 
 
 
